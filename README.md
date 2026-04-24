@@ -1,3 +1,5 @@
+https://modrinth.com/modpack/create-aeronautics-ultimate-modpack
+
 Very Cool and Beautiful modpck modpack!
 
 Core mods:
